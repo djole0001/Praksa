@@ -1,3 +1,3 @@
 # Praksa
-Praksa Djrodje Ristic
+Praksa Djordje Ristic
 
